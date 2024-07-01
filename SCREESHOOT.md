@@ -1,0 +1,5 @@
+![whitelistku_screenshot_5](https://github.com/asepnurjaman28/release_aplikasi/assets/134392306/64a51069-93d0-4fcc-8679-6d17f4410fa7)
+![whitelistku_screenshot_4](https://github.com/asepnurjaman28/release_aplikasi/assets/134392306/21a3d31c-975d-47d9-9eca-5abe8d68828c)
+![whitelistku_screenshot_3](https://github.com/asepnurjaman28/release_aplikasi/assets/134392306/fa9f474d-308c-4ea8-a3f5-45268db8b813)
+![whitelistku_screenshot_2](https://github.com/asepnurjaman28/release_aplikasi/assets/134392306/be7093bb-d164-4310-8bc1-f9359c51a769)
+![whitelistku_screenshot_1](https://github.com/asepnurjaman28/release_aplikasi/assets/134392306/46889b14-ad5b-474f-bc99-8788d57b1504)
